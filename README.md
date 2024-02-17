@@ -6,7 +6,7 @@
 
 <p align="left"> <a href="https://twitter.com/https://x.com/jayanth89252489?s=09" target="blank"><img src="https://img.shields.io/twitter/follow/https://x.com/jayanth89252489?s=09?logo=twitter&style=for-the-badge" alt="https://x.com/jayanth89252489?s=09" /></a> </p>
 
-- 📫 How to reach me **rishikoushikrajana15@gmail.com**
+- 📫 How to reach me **jayanth4741@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
